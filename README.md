@@ -1,2 +1,2 @@
 # hello-world
-Hi, my name is Jingyi Duan.
+Hi, my name is Jingyi(PHOEBE) Duan.
